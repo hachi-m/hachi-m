@@ -9,7 +9,7 @@
 - 💞️I’m interested in collaborating on ... user-friendly projects within the technology sector
 -  and exploring innovative opportunities.
 - 
-- 📫 How to reach me ...　jer.231002@gmail.com
+- 📫 How to reach me ...　@gmail.com
 - 
 - 😄 Pronouns: ...
 - 
