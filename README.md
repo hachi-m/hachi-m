@@ -9,11 +9,9 @@
 - 💞️I’m interested in collaborating on ... user-friendly projects within the technology sector
 -  and exploring innovative opportunities.
 - 
-- 📫 How to reach me ...　@gmail.com
 - 
-- 😄 Pronouns: ...
-- 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...　Exploring with children.
+For example, riverbed exploration!
 
 <!---
 hachi-m/hachi-m is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
